@@ -1,2 +1,2 @@
-## Shades for terminals
+## Making terminals fun again
 
