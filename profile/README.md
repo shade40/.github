@@ -1,1 +1,1 @@
-<img alt="Screenshot 2023-09-25 at 16 38 35" src="https://github.com/shade40/.github/assets/66030897/cb84219f-fa28-4c44-9aed-a7cb78ec5749">
+<img alt="Screenshot 2023-09-25 at 16 39 19" src="https://github.com/shade40/.github/assets/66030897/2bb4d72b-a166-4907-a52f-1b5164e72752">
